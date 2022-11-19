@@ -1,0 +1,1 @@
+Am facut un blog pentru caini in care am pus 6 tipuri diferite de caini ,fiecare avand descrierea sa si la care oamenii care il acceseaza sa studieze si sa decida care e cea mai buna rasa de caine din cele 6 puse de mine.
